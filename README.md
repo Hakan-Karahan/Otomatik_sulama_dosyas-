@@ -1,0 +1,1 @@
+# Otomatik_sulama_dosyas-
